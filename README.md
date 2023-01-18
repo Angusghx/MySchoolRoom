@@ -1,2 +1,2 @@
 # MySchoolRoom
-I don't want to live by face
+get by on looks
